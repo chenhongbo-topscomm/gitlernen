@@ -9,6 +9,8 @@ singe ich ein lied fuer dich
 von neunundneunzig Luftballons
 auf ihren wag zu horizont
 Dankst du vielleicht grad an mich
+Dann singe ich ein lied fuer dich
+von neunundneunzig Luftballons
 ...
 neunundneunzig Luftballons auf ihren wag zu horizont!
 Man fuer Ufos aus dem all
