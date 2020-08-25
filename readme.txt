@@ -1,12 +1,9 @@
-Git is a version control system.
-Git is free software indeed for sure.
-Git is free software.
-
-Hast du einige Falsch gemacht?
+-Hast du einige Falsch gemacht?
 Tja,niemals habe ich Falsch gemacht wirklich
 Wirklich glaube ich ueberhaupt nicht 
 
-Singen Sie bitte!
+-Singen Sie bitte!
+
 Hast du etwas Zeit fuer mich
 Dann singe ich ein liede fuer dich
 von neunundneunzig Luftballons
