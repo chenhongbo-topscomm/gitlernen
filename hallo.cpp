@@ -12,7 +12,7 @@ int main()
 	}
 	else
 	{
-		cout<<"Fantastisch!"<<endl;
+		cout<<"Fantastisch und Ausgezeichnet!"<<endl;
 	}
 	return 0;
 }
