@@ -5,10 +5,14 @@ Wirklich glaube ich ueberhaupt nicht
 -Singen Sie bitte!
 
 Hast du etwas Zeit fuer mich
-Dann singe ich ein liede fuer dich
+singe ich ein lied fuer dich
+von neunundneunzig Luftballons
+auf ihren wag zu horizont
+Dankst du vielleicht grad an mich
+Dann singe ich ein lied fuer dich
 von neunundneunzig Luftballons
 ...
-neunundneunzig Luftballons auf ihen wag zu horizont!
+neunundneunzig Luftballons auf ihren wag zu horizont!
 Man fuer Ufos aus dem all
 Darum schenken eine General
 Fliegerstaffln hinterher
