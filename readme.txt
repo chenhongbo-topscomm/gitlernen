@@ -7,8 +7,9 @@ Wirklich glaube ich ueberhaupt nicht
 Hast du etwas Zeit fuer mich
 Dann singe ich ein liede fuer dich
 von neunundneunzig Luftballons
+auf ihren wag zu horizont
 ...
-neunundneunzig Luftballons auf ihen wag zu horizont!
+neunundneunzig Luftballons auf ihren wag zu horizont!
 Man fuer Ufos aus dem all
 Darum schenken eine General
 Fliegerstaffln hinterher
